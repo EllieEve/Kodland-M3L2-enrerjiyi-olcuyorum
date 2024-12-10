@@ -1,1 +1,1 @@
-# Kodland-M3L2-enrerjiyi-olcuyorum
+# Kodland-M3L2-enrerjiyi-olcuyorum eksik
